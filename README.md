@@ -1,5 +1,5 @@
  
-#Dienstag, der 23 Oktober
+# Dienstag, der 23 Oktober
 
 Joesses, wie sollen wir das nur hinkriegen? Das Haus ist zwar leer, aber trotzdem ist da noch soviel Muell drin. Volker sieht nur die grossen Sachen, wie Betten und Tische, die weg muessen. Aber ueberall liegt Krimskrams ‘rum. Mir ist speiuebel…
 
