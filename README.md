@@ -5,7 +5,7 @@ Joesses, wie sollen wir das nur hinkriegen? Das Haus ist zwar leer, aber trotzde
 
 Mirakuloes schaffen wir es, alles loszuwerden oder wegzuschmeissen und wir sitzen im Taxi zum Flughafen. Endlich koennen wir uns etwas entspannen, bevor die naechste Stresstour beginnt: die Reise nach Newport News. So sitzen wir im Restaurant in Arlanda, trinken Bier, essen ‘ne Pizza und sind gutgelaunt. Es wird leider eine kurze Nacht.
 
-#Mittwoch, der 24 Oktober
+# Mittwoch, der 24 Oktober
 
 Es ist halb vier – morgens! Muede und aufgeregt, von Entspannung ist nun nichts mehr zu spueren, schleppen wir unseren Koffer vom Hotel zum Flughafen. Alles klappt ohne Probleme; nach einiger Warterei sitzen wir endlich im Flugzeug nach Bruessel und los geht’s. 
 
@@ -27,7 +27,7 @@ Na, es war also wirklich sehr nett, uns da ‘rueberzufahren. Aber leider erzaeh
 
 Wir verbrachten die Nacht ohne waterbugs.
 
-#Donnerstag, der 24. Oktober
+# Donnerstag, der 24. Oktober
 
 Enorm, was ein paar Stunden Schlaf ausmachen. Das Zimmer war zwar immer noch genauso eklig, aber meine Toleranzschwelle war nun nicht mehr ganz so niedrig wie am Abend davor. Nachdem wir die Teller, Besteck, Kochtopf abgewaschen hatten, denn sie waren nicht so richtig sauber, konnten wir mit Bagels, Cream Cheese und Tee fruehstuecken, um uns dann mit Uber zum Newport News Flughafen bringen zu lassen. Dort wollten wir uns dann einen Mietwagen besorgen. Der Flughafen ist gemuetlich klein und wir fanden schnell den Mietwagenverleih. Das sollte keine Probleme geben.
 
